@@ -1,2 +1,2 @@
 # journey
-life is a journey
+journey to life long course in continuing education 
